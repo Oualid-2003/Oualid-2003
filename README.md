@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Oualid-2003
+- 👋 Hi, I’m Oualid CHAHID
 - 👀 I’m interested in leaning new things
 - 🌱 I’m currently learning python
 - 📫 How to reach me:chahidwalid1209@gmail.com
